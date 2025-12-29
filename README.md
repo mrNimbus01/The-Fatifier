@@ -10,7 +10,7 @@ The Fatifier is a hypothetical capsule designed to rapidly reduce body fat over 
 - Day 4: 10% body fat  
 - Day 6: 7% body fat
 
-  That's if you're really on the big side. Otherwise, if you're just someone looking to get off christmas  the weight, this is your solution).
+  That's if you're really on the big side. Otherwise, if you're just someone looking to get off christmas  the weight, this is still your solution).
 
 One intake. Maximum effect. Instant transformation.  
 
